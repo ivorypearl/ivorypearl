@@ -5,4 +5,4 @@
 
 ![Image](https://github.com/user-attachments/assets/94eca424-09de-49b9-9ed4-73d26fa7330e)
 If anyone happens to see this pony, I’d be most grateful if you could block/report it,, thank you. ^__^
-Many thanks as well to Asa, Michi, and the others for letting me know I had been copied <3
+Many thanks as well to Asa, Michi, and the others (♡) for letting me know that I had been copied
